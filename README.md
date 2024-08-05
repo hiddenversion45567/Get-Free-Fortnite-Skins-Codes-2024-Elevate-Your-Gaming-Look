@@ -2,9 +2,9 @@
 
 Fortnite has taken the gaming world by storm, offering players an immersive experience filled with exciting challenges and customization options. One of the most coveted aspects of the game is the ability to personalize your character with unique skins.
 
-🟩👉Claim Rewards
+**🟩👉Claim Rewards : https://bnidigital.com/Fortnite-Skins-v4**
 
-🟩👉Claim Rewards
+**🟩👉Claim Rewards : https://bnidigital.com/Fortnite-Skins-v4**
 
 While many skins come at a cost, there are several ways to obtain free Fortnite skins in 2024. In this comprehensive guide, we will explore the best methods to get free skins and ensure your character stands out on the battlefield.
 
